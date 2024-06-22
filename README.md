@@ -12,7 +12,7 @@ PRNS: he/she/it
 
 AGE: 18+
 
-━━━━━━ᕱ⑅ᕱ━━━━━━━
+━━━━━━ᕱ⑅ᕱ━━━━━
 
 <img width="16" src="https://github.com/fruitsemail/fruitsemail/assets/143562762/2fe1e297-6769-4c96-8800-8440df29134b"/>INTERESTS...
 - Identity V ━ OMORI
